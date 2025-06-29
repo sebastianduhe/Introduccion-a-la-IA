@@ -6,3 +6,6 @@ Daniel Felipe Hincapie Lopez- 1001095936 - Ingenieria Industrial
 
 ## Video Entrega 2:
 Enlace de YouTube: https://youtu.be/dUncmlW7yvc?si=Ju3_ZwaEy7KKIZmM
+
+# ENTREGA FINAL:
+Enlace al video de YouTube: 
